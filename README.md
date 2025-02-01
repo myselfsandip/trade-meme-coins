@@ -1,1 +1,1 @@
-# -trade-meme-coins
+# trade-meme-coins
